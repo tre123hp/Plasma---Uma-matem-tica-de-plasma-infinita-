@@ -1,1 +1,1 @@
-# Plasma---Uma-matem-tica-de-plasma-infinita-
+# Plasma---Uma-matematica-de-plasma-infinita-
